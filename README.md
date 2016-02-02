@@ -25,7 +25,7 @@ Para Mais Informação consulte:
 	- https://meocloud.pt/link/720b344f-4f27-4137-9f63-951643342748/Jogo%20de%20Blackjack.ppt/
 
 - Instalar os videos em mp4:
-	- 
+	- https://meocloud.pt/link/c767f68a-4f8a-4914-8508-67aa468cb4cf/videos.zip/
 
 
 
